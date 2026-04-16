@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Clythem Onato DIT 3 in PUP Lopez<br>
+🔭 I’m Clythem Onato<br>
 
 
 ## 🌐 Socials:
